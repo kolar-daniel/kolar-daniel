@@ -1,5 +1,5 @@
 ### Hello there
-[Meme](https://github.com/kolar-daniel/gif/blob/main/1.gif)
+![Meme](https://github.com/kolar-daniel/gif/blob/main/1.gif)
 - I’m currently learning java, javascript, react native and working with linux.
 - I'm student.
 - I need help with getting my ass up and hit the gym.

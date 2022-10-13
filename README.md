@@ -1,5 +1,5 @@
 ### Hello there
-- 🌱 I’m currently learning java, javascript, react native and working with linux.
+- I’m currently learning java, javascript, react native and working with linux.
 - I'm student.
 - I need help with getting my ass up and hit the gym.
 - My school: https://www.spsmb.cz/

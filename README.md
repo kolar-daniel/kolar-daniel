@@ -5,7 +5,7 @@
 - I need help with getting my ass up and hit the gym.
 - My school: https://www.spsmb.cz/
 - Ig: https://www.instagram.com/_deceptor_/
-</li><li>Discord: DECEPTORcz#8300<img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="767503298583986186" height="30" width="40" /></a>
-</li><li>Discord server i play on (CZ 🇨🇿 server): https://discord.gg/8ZSvyVHjPY<img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="767503298583986186" height="30" width="40" /></a></li>
+- Discord: DECEPTORcz#8300<img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="767503298583986186" height="30" width="40" /></a>
+- Discord server i play on (CZ 🇨🇿 server): https://discord.gg/8ZSvyVHjPY<img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="767503298583986186" height="30" width="40" /></a></li>
 - I like playing WoW, R6, OW2, etc.
 - I don't like playing, but stil play LoL.
